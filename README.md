@@ -18,7 +18,8 @@
   <li>Hes constantly switching sides whenever he benifits from it</li>
   <li>He never has a good responce to anything</li>
  
- <p>Starting from the top, he is no help to the team because hes to busy getting bronze in eliminations. The 3 characters he play don't help his case. He plays Torborn, a character who is no help to begin with, Solider, thinking he can 1v6 the enitire other team, and Lucio, who can be a help to the team, but hes not very good with lucio. In fact, Nate, a good friend of mine, beat ryan in a lucio 1v1, which brings me to my next point.</p>
+ <p>  Starting from the top, he is no help to the team because hes to busy getting bronze in eliminations. The 3 characters he play don't help his case. He plays Torborn, a character who is no help to begin with, Solider, thinking he can 1v6 the enitire other team, and Lucio, who can be a help to the team, but hes not very good with lucio. In fact, Nate, a good friend of mine, beat ryan in a lucio 1v1, which brings me to my next point.</p>
+ <p>  My next point is Nothing is every Ryans fault, usually he has 5 excuses ready for when he loses, gets in an argument, or why he can't play good at the game. Most of the times his excuses consist of "My wifi isn't working",(which isn't a valid argument because if he can play minecraft just fine, he should be able to play overwatch,) "I don't feel like it," which is short for "I'm afraid I'm gonna lose," and so on. </p>
  
   
 </body>
