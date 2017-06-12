@@ -21,7 +21,7 @@
  <p>  My second point is Nothing is every Ryans fault, usually he has 5 excuses ready for when he loses, gets in an argument, or why he can't play good at the game. Most of the times his excuses consist of "My wifi isn't working",(which isn't a valid argument because if he can play minecraft just fine, he should be able to play overwatch,) "I don't feel like it," which is short for "I'm afraid I'm gonna lose," and so on. </p>
  <p>My third and final point is going to talk about how terrible his comebacks and responses are. They are just as bad as his social relevance, which is little to none because his only form of social media is Youtube due to the fact that his parents won't let him get things like instagram, snapchat, or twitter. But his excuse is "he doesn't want to get social media". Anyways, lets talk about his responces. They aren't very good ones, but he has some that'll make you say outloud "Is this kid stupid?" His answer would be that he has Strait A's in the school he joined during the last 5 weeks of school.</p>
  
-<p> Ryans "Amazing" Comebacks </p>
+<h1> Ryans "Amazing" Comebacks </h1>
 <ul>
 <li> Statement = "Ryans actually brain Dead" | Ryan = "At least I have strait A's" (Using grades as an excuse that you aren't stupid is meaningless because grades are easy to get and don't mean anything until highschool.)</li>
 <li> Nate "Dude, you are terrible at Lucio" | Ryan = "I have more kills as him." (Lucio is a support hero, which means hes supposed to help the team by keeping them healed, but if your too busy going for kills as you let your team die, that makes you a terrible support hero and you should stick to DPS.) </li>
