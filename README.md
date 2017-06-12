@@ -15,11 +15,18 @@
   <ol>
   <li>Hes no help to the team in games where teamwork is key</li>
   <li>Things are never his fault</li>
-  <li>Hes constantly switching sides whenever he benifits from it</li>
-  <li>He never has a good responce to anything</li>
+  <li>He never has a good response to anything</li>
  
  <p>  Starting from the top, he is no help to the team because hes to busy getting bronze in eliminations. The 3 characters he play don't help his case. He plays Torborn, a character who is no help to begin with, Solider, thinking he can 1v6 the enitire other team, and Lucio, who can be a help to the team, but hes not very good with lucio. In fact, Nate, a good friend of mine, beat ryan in a lucio 1v1, which brings me to my next point.</p>
- <p>  My next point is Nothing is every Ryans fault, usually he has 5 excuses ready for when he loses, gets in an argument, or why he can't play good at the game. Most of the times his excuses consist of "My wifi isn't working",(which isn't a valid argument because if he can play minecraft just fine, he should be able to play overwatch,) "I don't feel like it," which is short for "I'm afraid I'm gonna lose," and so on. </p>
+ <p>  My second point is Nothing is every Ryans fault, usually he has 5 excuses ready for when he loses, gets in an argument, or why he can't play good at the game. Most of the times his excuses consist of "My wifi isn't working",(which isn't a valid argument because if he can play minecraft just fine, he should be able to play overwatch,) "I don't feel like it," which is short for "I'm afraid I'm gonna lose," and so on. </p>
+ <p>My third and final point is going to talk about how terrible his comebacks and responses are. They are just as bad as his social relevance, which is little to none because his only form of social media is Youtube due to the fact that his parents won't let him get things like instagram, snapchat, or twitter. But his excuse is "he doesn't want to get social media". Anyways, lets talk about his responces. They aren't very good ones, but he has some that'll make you say outloud "Is this kid stupid?" His answer would be that he has Strait A's in the school he joined during the last 5 weeks of school.</p>
+ 
+<p> Ryans "Amazing" Comebacks </p>
+<ul>
+<li> Statement = "Ryans actually brain Dead" | Ryan = "At least I have strait A's" (Using grades as an excuse that you aren't stupid is meaningless because grades are easy to get and don't mean anything until highschool.)</li>
+<li> Nate "Dude, you are terrible at Lucio" | Ryan = "I have more kills as him." (Lucio is a support hero, which means hes supposed to help the team by keeping them healed, but if your too busy going for kills as you let your team die, that makes you a terrible support hero and you should stick to DPS.) </li>
+<li>
+
  
   
 </body>
