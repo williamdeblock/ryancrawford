@@ -22,7 +22,7 @@
  
 <h1> Ryans "Amazing" Comebacks </h1>
 <ul>
-<li> Will = "Ryans, you are actually brain Dead" | Ryan = "At least I have strait A's" (Using grades as an excuse that you aren't stupid is meaningless because grades are easy to get and don't mean anything until highschool.)</li>
+<li> Will = "Ryans, you are actually brain Dead" | Ryan = "At least I have strait A's" (Using grades as an excuse that you aren't stupid holds no weight because grades are easy to get and don't mean anything until highschool.)</li>
 <li> Nate "Dude, you are terrible at Lucio" | Ryan = "I have more kills as him." (In Overwatch, Lucio is a support hero. Being a Support Hero means hes supposed to help the team by keeping them healed, but if your too busy going for kills as you let your team die, that makes you a terrible support hero and you should stick to DPS. Actually, since hes terrible at both DPS and Support, he should stick to playing Minecraft and let the Professionals play) </li>
 <li>
 
