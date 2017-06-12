@@ -18,7 +18,8 @@
   <li>Hes constantly switching sides whenever he benifits from it</li>
   <li>He never has a good responce to anything</li>
  
- <p>Starting from the top </p>
+ <p>Starting from the top, he is no help to the team because hes to busy getting bronze in eliminations. The 3 characters he play don't help his case. He plays Torborn, a character who is no help to begin with, Solider, thinking he can 1v6 the enitire other team, and Lucio, who can be a help to the team, but hes not very good with lucio. In fact, Nate, a good friend of mine, beat ryan in a lucio 1v1, which brings me to my next point.</p>
+ 
   
 </body>
 
