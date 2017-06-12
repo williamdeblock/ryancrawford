@@ -12,12 +12,13 @@
     
   <h1>Why Does he Suck?</h1>
   <p> Before we begin, heres a quick list on the things that are wrong with Ryan, </p>
-  <ul>
+  <ol>
   <li>Hes no help to the team in games where teamwork is key</li>
   <li>Things are never his fault</li>
   <li>Hes constantly switching sides whenever he benifits from it</li>
   <li>He never has a good responce to anything</li>
-  <p> </p>
+ 
+ <p>Starting from the top </p>
   
 </body>
 
